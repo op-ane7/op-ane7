@@ -3,4 +3,4 @@
 🎮 🎧 Gosto de jogar GTA e ouvir músicas.
 🎈 Gosto de sair com meus amigos nos fins de semana 🎊.
 gosto de dar capas no free fire e jogar com minha duo Shinigamy👄 
-▄︻デ══━一
+▄︻デ══━一💥
